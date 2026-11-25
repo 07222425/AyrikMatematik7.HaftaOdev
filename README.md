@@ -1,0 +1,1 @@
+# AyrikMatematik7.HaftaOdev
